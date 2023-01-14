@@ -8,4 +8,4 @@
 
 ### See my projects Here
 
-[Click here to watch preview](https://mr7kitkat.github.io/mr7kitkat/#projects)
+[Click here to see my projects](https://mr7kitkat.github.io/mr7kitkat/#projects)
