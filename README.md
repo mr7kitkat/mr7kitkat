@@ -9,3 +9,5 @@
 ### See my projects Here
 
 [Click here to see my projects](https://mr7kitkat.github.io/mr7kitkat/#projects)
+
+[Download Resume](https://docs.google.com/document/d/1r4KaTTF6FSyBurcV3gABYSv5an-Gq3aV/edit?usp=share_link&ouid=117368526575827545077&rtpof=true&sd=true)
